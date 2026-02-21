@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **hamed.taghadosi.ai97@gmail.com**
 
-- ⚡ Fun fact **my close friend always counts on me.**
+- ⚡ Fun fact **my close friends can always counts on me.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
